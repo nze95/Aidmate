@@ -1,3 +1,7 @@
+AidMate
+
+Increase your comfort, confidence, and competence
+
 https://youtu.be/r2pdXP4tjkQ
 
 ~OUR INSPIRATION Millions of people with disabilities are having a hard time overcoming their challenges, be it handling their daily life tasks or obtaining equal career opportunities in the global job market. According to the reputable statistical data that we collected, In developing countries, 80-90% of people with disabilities of working age are unemployed. In the majority of developed countries, the official unemployment rate for people with impairments of working age is at least twice that for those who have no disability. So, we thought of coming up with an admirable piece of technology for disabled individuals that are easier to use than ever before and has a significant influence on their lives.
